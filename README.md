@@ -1,2 +1,2 @@
-# drs22Col.github.io
+About me: I’m an M.A. candidate in the Quantitative Methods in the Social Sciences program at Columbia University. I’ve worked for fifteen years as a staff editor for national magazines like Natural History and Forbes, and helped found a spin-off technology magazine for Forbes Inc. My writing has appeared in Discover, Forbes and others, and has been featured on National Public Radio. Previously I was an analyst for Morningstar. I am researching a dual scientific biography which I am illustrating with digital art, watercolor paintings and collage. My cartoons and illustrations have appeared in Natural History and Commonweal. I also teach graduate-level writing at the New School University and hold an M.A. in English literature.
 
