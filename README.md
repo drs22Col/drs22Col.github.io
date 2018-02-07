@@ -2,5 +2,5 @@ Hi! My name is Dolly, and I'm a Masters student in the Quantitative Methods in t
 
 If you're not familiar with Sempe's work, check him out here (link to be added sometime in the near or distant future..) 
 
-And here's a link to the inimitable Jane Goodall's research center. 
+And here's a link to Jane Goodall's research center. I was once asked for an example of a very authentic person (whatever that means), and I chose Goodall. Authentic or not, she's got great values and emphasizes the importance of empathy in science as well as the need for conservation. 
 
